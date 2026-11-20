@@ -1,0 +1,1 @@
+# LP_ICT10_Q2SkillsTest_VELO_KATE
